@@ -1,1 +1,0 @@
-# bskang-v6x.github.io
